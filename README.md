@@ -19,4 +19,5 @@ In addition, the session introduced various career opportunities within PPG and 
 
 In conclusion, the PPG Industry Talk was an informative and insightful experience that enhanced my understanding of the role of paints and coatings in safety, sustainability, and technological advancement. The session also motivated me to explore future career opportunities related to materials science, chemical technology, and industrial innovation.
 
-![image alt](
+My Group's Poster :
+![image alt](https://github.com/hfiona-06/INDUSTRY-TALK-1---PGG/blob/1f824a340c3ddd9643a166d44a78bb830a5118e1/TIS_Assignment_1.jpeg)
